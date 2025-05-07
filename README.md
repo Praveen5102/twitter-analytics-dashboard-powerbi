@@ -43,7 +43,7 @@ To explore or edit the dashboard:
 ## 🤝 Let’s Connect
 
 I'm currently open to **Data Analyst roles** and looking to apply my skills in solving real-world business problems.  
-Feel free to reach out or connect with me on [LinkedIn](https://www.linkedin.com/gonepraveen)!
+Feel free to reach out or connect with me on [LinkedIn](https://www.linkedin.com/in/gonepraveen/)!
 
 ---
 
